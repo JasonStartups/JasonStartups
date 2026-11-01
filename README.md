@@ -34,8 +34,8 @@ I'm especially interested in working with ambitious early-stage teams building p
 
 ## Connect
 
-- **Website:** [jdcr8r.com](https://www.jdcr8r.com)
-- **Email:** [jdcr8r@gmail.com](mailto:jdcr8r@gmail.com)
+- **Website:** [charlesemmanueljason.com](https://www.charlesemmanueljason.com)
+- **Email:** [jdcr8r@gmail.com](mailto:hello@charlesemmanueljason.com)
 - **GitHub:** [@JasonStartups](https://github.com/JasonStartups)
-- **X:** [@jdcr8r](https://x.com/jdcr8r)
-- **Medium:** [@jdcr8r](https://medium.com/@jdcr8r)
+- **X:** [@jdcr8r](https://x.com/realms_in_man)
+
